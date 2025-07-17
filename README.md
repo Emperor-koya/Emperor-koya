@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Emperor-koya
+- 👋 Hi, I’m @Koya
 - 👀 I’m interested in Manga, Anime, Tennis, Video games and cars
 - 🌱 I’m currently learning Everything!!!<3
 - 💞️ I’m looking to collaborate on ...
